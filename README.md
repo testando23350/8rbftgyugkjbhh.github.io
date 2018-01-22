@@ -1,2 +1,1 @@
-# http://8rbftgyugkjbhh.github.io
-lhkhhgkg
+# http://8rbftgyugkjbhh.com
